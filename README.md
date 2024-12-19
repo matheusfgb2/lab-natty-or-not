@@ -28,8 +28,4 @@ Publique seus resultados com a hashtag **#LabDIONattyOrNot** e marque **DIO** pa
 ### Exemplos Visuais
 
 #### Imagem 1: IA ou Humano?
-(A imagem do cenário futurista deve ser inserida aqui.)
-
 #### Imagem 2: A Perfeição da Simetria
-(A imagem de design abstrato com padrões perfeitos deve ser inserida aqui.)
-
